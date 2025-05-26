@@ -56,7 +56,7 @@
 📬 Connect with Me
 📧 Email: guptakushagra99@gmail.com
 
-🔗 LinkedIn: @kushagra-gupta
+🔗 LinkedIn: https://www.linkedin.com/in/-kushagra-gupta-/
 
 ✨ “Automate what you can, observe what you can’t.”
 
