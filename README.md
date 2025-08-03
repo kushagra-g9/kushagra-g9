@@ -54,7 +54,7 @@
 
 
 📬 Connect with Me
-📧 Email: guptakushagra99@gmail.com
+📧 Email: kushagragupta.devops@gmail.com
 
 🔗 LinkedIn: https://www.linkedin.com/in/-kushagra-gupta-/
 
